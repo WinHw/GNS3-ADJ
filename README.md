@@ -5,4 +5,4 @@ Hendry Winata \
 Kelas Administrasi dan Desain Jaringan Kom - C
 ---
 Link screen-record youtube:\
-https://youtu.be/rpAXhYyD8xY
+https://youtu.be/Ce2-SwYyFxU
